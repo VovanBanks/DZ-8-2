@@ -24,6 +24,10 @@
 
 ![2-2](https://user-images.githubusercontent.com/121317840/213285113-4251e7bf-f30c-4a0a-9ef1-04e97fd05c37.PNG)
 
+![2-4](https://user-images.githubusercontent.com/121317840/213285702-6cbf6285-d777-4a32-8127-d719c628e362.PNG)
+
+![2-5](https://user-images.githubusercontent.com/121317840/213285733-619a588a-0a6f-417f-bc7d-8a57682418c2.PNG)
+
 ![2-3](https://user-images.githubusercontent.com/121317840/213285126-598044cb-466f-404e-9b26-b6e53c883af3.PNG)
 
 ---
