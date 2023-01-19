@@ -36,7 +36,7 @@
 
 ![1](https://user-images.githubusercontent.com/121317840/213432651-8d33509c-df36-401c-ba11-93566d2d62fd.png)
 
-![2](https://user-images.githubusercontent.com/121317840/213432679-27905bb2-0355-415b-a9d6-94824530d24c.PNG)
+![2](https://user-images.githubusercontent.com/121317840/213433129-e0573e41-3245-4a6f-9bb4-755ee471db3c.PNG)
 
 ![3](https://user-images.githubusercontent.com/121317840/213432690-97c19e98-14a6-4100-9051-5e942504ecd1.png)
 
